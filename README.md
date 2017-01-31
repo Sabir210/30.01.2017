@@ -1,0 +1,27 @@
+# 30.01.2017
+Freelance ideyasi: 1) Proyektimin esas meqsedi ondan ibaretdir ki, Azerbaycanda ishsiz insanlar mueyyen skilleri elde edib pul qazana bilmesi ve sifarishcilerin artiq pul ve vaxt itkisi olmadan ishlerinin qisa zamanda hell oluna bilmesidir
+2) Xususi meqsedim odur ki, men bu bu proyektden ayda en azi 1500 dollar gelir elde edim.
+3) Proyektim mene 1500 pul getirende ve 1)-ci punkt
+4) Proyektimin hedef kutlesi ishsiz insanlar ve sifarishciler
+5) Esas qerarverici shexs kliyentlerdir
+6) -
+7) Hec yerden bu sayt sadece digerler bu tipli saytlarin anaqloqudur
+8) Lazim olan qeder
+9) Hele ki, hec bir xususi texnologiya aglima gelmir
+10) Eger yaratdigim proyekt yuxaridaki shertleri odese, o menim meqsedimi tamamile ifade edecek
+11) Beli etmishem. Sadece bu layihede (saytda) hele ki, ugur qazanmamisham
+
+Audience
+1) Sayt free ve hec kimden asili olmayaraq pul qazanmaq sheraitini yaradir
+2) Menim auditoriyam fikrimde 20-35 yash araliginda insanlar olacaq. Cunki bu donemde insan ofisde oturub ish gormek yox serbest yashamag isteyir. Userlerin maragi pul qazanmagdir.
+3) Ofis ishdinden sixildigi ucun, bu ve ya diger ebeblere gore ofisde ishleye bilmedikleri ucun.
+4) Userler menim saytimdan gelir, ishlebib hazirlanmish proyektler ve yeni tecrube ve bilikler elde edib cixacaq.
+
+Content
+1) Hec bir kontent lazim deyil.
+2) Hele bu haqda hec bir fikrim yoxdur.
+3) Hele hecne hazir deyil.
+
+Communication
+1) Bu sayt freelance olaraq olaraq ish tapmaq isteyenleri ve bu ishi teklif edenleri birleshdirecek.
+2) Bu sayt ucun qisa muddetli meqsed coxlu auditoriya yigmaq, uzun muddetli meqsed ise menim bu saytdan gelir elde etmeyimdir.
